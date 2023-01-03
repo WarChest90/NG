@@ -1,5 +1,5 @@
 # Remnants of Titilonic
-![Titilonic](/Art/titilonic.jpg "Titilonic")
+![Titilonic](/Art/titilonic_and_bitey.png "Titilonic")
 
 You'll find some of her old files here, useful if you want to re-use them.
 
