@@ -1,4 +1,6 @@
 # Remnants of Titilonic
+![Titilonic](/Art/titilonic.jpg "Titilonic")
+
 You'll find some of her old files here, useful if you want to re-use them.
 
 **Gallery:**
@@ -9,6 +11,5 @@ https://www.newgrounds.com/bbs/topic/1473701
 
 **Farewell message:**
 https://titilonic.newgrounds.com/news/post/1330407
-
 
   Attribution is appreciated but entirely optional unless the sources' username is specified. Inspired by her favorite composer, [AudionautiX](https://audionautix.com).
