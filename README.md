@@ -11,4 +11,4 @@ https://www.newgrounds.com/bbs/topic/1473701
 https://titilonic.newgrounds.com/
 
 
-  Attribution is appreciated but entirely optional, same as her favorite artist/idol, [AudionautiX](https://audionautix.com).
+  Attribution is appreciated but entirely optional, same as her favorite composer, [AudionautiX](https://audionautix.com).
