@@ -8,7 +8,7 @@ https://inkbunny.net/gallery/Titilonic/1/a775bd7750
 https://www.newgrounds.com/bbs/topic/1473701
 
 **Farewell message:**
-https://titilonic.newgrounds.com/
+https://titilonic.newgrounds.com/news/post/1330407
 
 
   Attribution is appreciated but entirely optional, same as her favorite composer, [AudionautiX](https://audionautix.com).
